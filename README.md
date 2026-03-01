@@ -1,7 +1,7 @@
 ![Project Preview](preview.png)
 
 # In-Vehicle Heat Mitigation System  
-### Market Research & 10-Year Commercialization Strategy  
+### Market Research & 10-Year Global Launch Strategy  
 
 ---
 
